@@ -18,7 +18,7 @@
 * walk 7min(400m) arrive.
 
 ## 29 Mar (Sunday) 
-### breakfast
+### Breakfast
 #### Lao Jiang Nan Tai (24 hours)
 * is 3min(230m) away from formosa boulevard station.
 
@@ -51,7 +51,7 @@
 #### Suzuka Circuit Park (Open 11am to 8:30pm, sat sun 10:30am) 
 * take ORANGE line (towards Daliao) and change to RED line at Formosa Boulevard Station (towards xiaogang)
 * get off at Caoya station.
-* walk 18mins (1.2km) to reach.
+* walk 5mins to reach toroka park and suzuka circuit park.
 
 ### Lunch 
 #### qian jing rou zhao fan (7:15am to 5:30pm, closed on sunday)
@@ -61,7 +61,7 @@
 * take ORANGE line [Hamasen] , get off at yanchengpu
 * walk 5min (350m)
 
-### dinner
+### Dinner
 #### bei gang tsai rice tubu (1:30pm to 9:30pm, wednesday closed)
 
 ## 31 Mar (Tuesday)
