@@ -23,6 +23,7 @@
 #### xin long ju (4:30am to 11:30am, monday and tuesday closed)[https://maps.app.goo.gl/BabgA7UkeuDJ35Mn8]
 * is 2min(150m) from CianJin Station ORANGE line.
 * take RED Line to Formosa Boulevard Station, change to ORANGE line (towards Hamasen) to CianJin
+* [menu](https://maps.app.goo.gl/JHnGuyAv9jfDdugN8)
 
 #### [Lao Jiang Nan Tai (24 hours)](https://maps.app.goo.gl/rneavDmR9gfZVr8S7)
 * is 3min(230m) away from formosa boulevard station.
