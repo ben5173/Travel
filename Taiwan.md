@@ -1,7 +1,7 @@
 
 ## 28 Mar (Saturday) 
 
-#### [Brio hotel from ZuoYin Station]https://maps.app.goo.gl/AjdYko6uN5keYXun6
+#### [Brio hotel from ZuoYin Station](https://maps.app.goo.gl/AjdYko6uN5keYXun6)
 * 从左营高铁站到比欧致居 (Brio Hotel)
 * 在高铁左营站大厅内，请跟随“高雄捷运 (KMRT)”的指示牌走。地铁站名为左营站(R16)。
 * 搭乘红线向南的列车（往小港方向）。
