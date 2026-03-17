@@ -55,7 +55,12 @@
 
 ### Lunch 
 #### qian jing rou zhao fan (7:15am to 5:30pm, closed on sunday)
+https://maps.app.goo.gl/qkoSuFPgBz5Thjdv5
 * only can eat on monday or tuesday.
+* take the ORANGE line (towards DahLiao) from Hamasen.
+* get off at CianJin Station.
+* walk 4min (350m) arrived.
+   
 #### Chun Shui Tang (2 branches, 11am to 9pm[Pier2], [SKM Park])
 * Pier 2 branch
 * take ORANGE line [Hamasen] , get off at yanchengpu
