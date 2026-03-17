@@ -52,7 +52,8 @@
 * is 3min(230m) away from formosa boulevard station.
 
 #### [Lan Jing Breakfast Restaurant](https://maps.app.goo.gl/UA3t29uegiu8aRUa7)
-* is 10mins walk (750m) from kaohsiung station.
+* is 10mins walk (**750m**) from kaohsiung station.
+* [menu](https://maps.app.goo.gl/S2ELncUTzqHr9vE1A)
 
 #### [哈瑪星鐵道園區 Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)](https://maps.app.goo.gl/yhHTWrTX9qCPtcuD6)
 * from brio hotel, walk to central park station RED Line **Ganshan** 2min(120m)
