@@ -40,9 +40,10 @@
 * walk 1min(82m) to reach Gushan Ferry Pier Station.
 * take ferry to Cijin Island.
 * or take tourist Ferry at **KW2 warehouse**. walk 12min (850m) from Gushan fish market. 
-#### [Cijiin Old Street](https://maps.app.goo.gl/LHKRTDpYbqkq1QLs8)
-#### [CiHou Market](https://maps.app.goo.gl/PBXT57iAA8juv5Z38)
-#### [CiHou Fort](https://maps.app.goo.gl/EvJQVZpQQ3DrNEvt7)
+* Attractions
+   * [Cijiin Old Street](https://maps.app.goo.gl/LHKRTDpYbqkq1QLs8)
+   * [CiHou Market](https://maps.app.goo.gl/PBXT57iAA8juv5Z38)
+   * [CiHou Fort](https://maps.app.goo.gl/EvJQVZpQQ3DrNEvt7)
 
 ## 30 Mar (Monday)
 #### [哈瑪星鐵道園區 Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)](https://maps.app.goo.gl/yhHTWrTX9qCPtcuD6)
@@ -51,7 +52,7 @@
 * change to ORANGE line (Hamasen) towards Hamasen.
 * get off at Hamasen
 
-#### Suzuka Circuit Park (Open 11am to 8:30pm, sat sun 10:30am) 
+#### [Suzuka Circuit Park (Open 11am to 8:30pm, sat sun 10:30am)](https://maps.app.goo.gl/EkFjBfZeUMR4KwUa8)
 * take ORANGE line (towards Daliao) and change to RED line at Formosa Boulevard Station (towards xiaogang)
 * get off at Caoya station.
 * walk 5mins to reach toroka park and suzuka circuit park.
@@ -63,7 +64,7 @@
 * get off at CianJin Station.
 * walk 4min (350m) arrived.
    
-#### Chun Shui Tang (2 branches, 11am to 9pm[Pier2], [SKM Park])
+#### Chun Shui Tang (2 branches, 11am to 9pm[Pier2](https://maps.app.goo.gl/LWRepzccUf7suNB17), [SKM Park](https://maps.app.goo.gl/BtnCMWGHR9vCJETA6))
 * Pier 2 branch
 * take ORANGE line [Hamasen] , get off at yanchengpu
 * walk 5min (350m)
