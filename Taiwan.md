@@ -1,48 +1,51 @@
 
 ## 28 Mar (Saturday) 
 
-#### Brio hotel from ZuoYin Station
+#### [Brio hotel from ZuoYin Station]https://maps.app.goo.gl/AjdYko6uN5keYXun6
 * 从左营高铁站到比欧致居 (Brio Hotel)
 * 在高铁左营站大厅内，请跟随“高雄捷运 (KMRT)”的指示牌走。地铁站名为左营站(R16)。
 * 搭乘红线向南的列车（往小港方向）。
 * 在中央公园站(R9)下车： 车程大约12–15分钟（共7站）。
 * 从中央公园站3号出口出站。比欧致居就在出口正前方，步行不到1分钟。
 
-#### liu he night market (5pm to 12am)
+#### [liu he night market (5pm to 12am)](https://maps.app.goo.gl/FadV99q2HkKG32AE7)
 * from brio hotel, walk to central park station RED Line **Ganshan**  2min(120m)
 * get off at formosa boulevard station
 * walk 5min(350m) arrive.
 
-#### Rui Feng night market (5pm to 12am, closed on monday and wed)
+#### [Rui Feng night market (5pm to 12am, closed on monday and wed)](https://maps.app.goo.gl/NjAfDAo14kgjpMTP8)
 * take the red line, get off at Kaohsiung Arena Station
 * walk 7min(400m) arrive.
 
 ## 29 Mar (Sunday) 
 ### Breakfast
-#### Lao Jiang Nan Tai (24 hours)
+#### [Lao Jiang Nan Tai (24 hours)](https://maps.app.goo.gl/rneavDmR9gfZVr8S7)
 * is 3min(230m) away from formosa boulevard station.
 
-#### Lan Jing Breakfast Restaurant 
+#### [Lan Jing Breakfast Restaurant](https://maps.app.goo.gl/UA3t29uegiu8aRUa7)
 * is 10mins walk (750m) from kaohsiung station.
 
-#### Fo Guang Shan
+#### [Fo Guang Shan](https://maps.app.goo.gl/buhWhVhB8x8NDNzb6)
 * take uber (35min drive)
 
 ### Lunch
-#### Gushan Fish Market
+#### [Gushan Fish Market](https://maps.app.goo.gl/hRHZvWYMB5b5dt5k9)
 * from brio hotel, walk to central park station RED Line **Ganshan** 2min(120m)
 * or walk 14min (650m) towards formosa boulevard station.
 * change to ORANGE line (Hamasen) towards Hamasen.
 * Get off at Hamasen Station.
 * walk 8min (550m) and arrived.
 
-#### Chi Jin
+#### Ci Jin island
 * walk 1min(82m) to reach Gushan Ferry Pier Station.
 * take ferry to Cijin Island.
 * or take tourist Ferry at **KW2 warehouse**. walk 12min (850m) from Gushan fish market. 
+#### [Cijiin Old Street](https://maps.app.goo.gl/LHKRTDpYbqkq1QLs8)
+#### [CiHou Market](https://maps.app.goo.gl/PBXT57iAA8juv5Z38)
+#### [CiHou Fort](https://maps.app.goo.gl/EvJQVZpQQ3DrNEvt7)
 
 ## 30 Mar (Monday)
-#### Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)
+#### [哈瑪星鐵道園區 Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)](https://maps.app.goo.gl/yhHTWrTX9qCPtcuD6)
 * from brio hotel, walk to central park station RED Line **Ganshan** 2min(120m)
 * or walk 14min (650m) towards formosa boulevard station.
 * change to ORANGE line (Hamasen) towards Hamasen.
