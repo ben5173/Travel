@@ -19,6 +19,11 @@
 
 ## 29 Mar (Sunday) 
 ### Breakfast
+
+#### xin long ju (4:30am to 11:30am, monday and tuesday closed)[https://maps.app.goo.gl/BabgA7UkeuDJ35Mn8]
+* is 2min(150m) from CianJin Station ORANGE line.
+* take RED Line to Formosa Boulevard Station, change to ORANGE line (towards Hamasen) to CianJin
+
 #### [Lao Jiang Nan Tai (24 hours)](https://maps.app.goo.gl/rneavDmR9gfZVr8S7)
 * is 3min(230m) away from formosa boulevard station.
 
@@ -64,16 +69,17 @@
 * get off at CianJin Station.
 * walk 4min (350m) arrived.
    
-#### Chun Shui Tang (2 branches, 11am to 9pm[Pier2](https://maps.app.goo.gl/LWRepzccUf7suNB17), [SKM Park](https://maps.app.goo.gl/BtnCMWGHR9vCJETA6))
+#### Chun Shui Tang (2 branches, 11am to 9pm; [Pier2](https://maps.app.goo.gl/LWRepzccUf7suNB17), [SKM Park](https://maps.app.goo.gl/BtnCMWGHR9vCJETA6))
 * Pier 2 branch
 * take ORANGE line [Hamasen] , get off at yanchengpu
 * walk 5min (350m)
 
 ### Dinner
-#### bei gang tsai rice tubu (1:30pm to 9:30pm, wednesday closed)
+#### [bei gang tsai rice tubu (1:30pm to 9:30pm, wednesday closed)](https://maps.app.goo.gl/6UZEmSmzqYNQjVTu8)
 
 ## 31 Mar (Tuesday)
-* breakfast - xin long ju
+### Breakfast
+
 * kao shiong 科工館 FUN
 
 suggest foguang san move to sunday
