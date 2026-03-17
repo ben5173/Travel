@@ -50,6 +50,7 @@
 ### Breakfast
 #### [Lao Jiang Nan Tai (24 hours)](https://maps.app.goo.gl/rneavDmR9gfZVr8S7)
 * is 3min(230m) away from formosa boulevard station.
+* [menu](https://maps.app.goo.gl/KH5QcLM6M1MV9wVf9)
 
 #### [Lan Jing Breakfast Restaurant](https://maps.app.goo.gl/UA3t29uegiu8aRUa7)
 * is 10mins walk (**750m**) from kaohsiung station.
