@@ -62,11 +62,6 @@
 * change to ORANGE line (Hamasen) towards Hamasen.
 * get off at Hamasen
 
-#### [Suzuka Circuit Park (Open 11am to 8:30pm, sat sun 10:30am)](https://maps.app.goo.gl/EkFjBfZeUMR4KwUa8)
-* take ORANGE line (towards Daliao) and change to RED line at Formosa Boulevard Station (towards xiaogang)
-* get off at Caoya station.
-* walk 5mins to reach toroka park and suzuka circuit park.
-
 ### Lunch 
 #### [前金肉燥飯 qian jing rou zhao fan (7:15am to 5:30pm, closed on sunday)](https://maps.app.goo.gl/qkoSuFPgBz5Thjdv5)
 * only can eat on monday or tuesday.
@@ -78,6 +73,11 @@
 * Pier 2 branch
 * take ORANGE line [Hamasen] , get off at yanchengpu
 * walk 5min (350m)
+
+#### [Suzuka Circuit Park (Open 11am to 8:30pm, sat sun 10:30am)](https://maps.app.goo.gl/EkFjBfZeUMR4KwUa8)
+* take ORANGE line (towards Daliao) and change to RED line at Formosa Boulevard Station (towards xiaogang)
+* get off at Caoya station.
+* walk 5mins to reach toroka park and suzuka circuit park.
 
 ### Dinner
 #### [bei gang tsai rice tubu (1:30pm to 9:30pm, wednesday closed)](https://maps.app.goo.gl/6UZEmSmzqYNQjVTu8)
