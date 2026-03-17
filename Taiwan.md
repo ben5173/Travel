@@ -1,11 +1,12 @@
 
 ## 28 Mar (Saturday) 
 
-从左营高铁站到比欧致居 (Brio Hotel)
-在高铁左营站大厅内，请跟随“高雄捷运 (KMRT)”的指示牌走。地铁站名为左营站(R16)。
-搭乘红线向南的列车（往小港方向）。
-在中央公园站(R9)下车： 车程大约12–15分钟（共7站）。
-从中央公园站3号出口出站。比欧致居就在出口正前方，步行不到1分钟。
+#### Brio hotel from ZuoYin Station
+* 从左营高铁站到比欧致居 (Brio Hotel)
+* 在高铁左营站大厅内，请跟随“高雄捷运 (KMRT)”的指示牌走。地铁站名为左营站(R16)。
+* 搭乘红线向南的列车（往小港方向）。
+* 在中央公园站(R9)下车： 车程大约12–15分钟（共7站）。
+* 从中央公园站3号出口出站。比欧致居就在出口正前方，步行不到1分钟。
 
 #### liu he night market (5pm to 12am)
 * from brio hotel, walk to central park station RED Line **Ganshan**  2min(120m)
