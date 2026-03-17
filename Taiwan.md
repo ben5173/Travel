@@ -84,10 +84,8 @@
 
 ## 31 Mar (Tuesday)
 ### Breakfast
+#### Not decided
 
-* kao shiong 科工館 FUN
-
-suggest foguang san move to sunday
-
-so cijin and hamasan on monday.
+#### [彩虹童畫親子樂園‧高雄科工館B1 夢幻彩虹光速滑梯、遊樂景點](https://maps.app.goo.gl/6miNcQ7zTMZdpmJ57)
+* need uber 11mins, no train
 
