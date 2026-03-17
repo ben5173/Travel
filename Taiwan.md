@@ -25,12 +25,6 @@
 * take RED Line to Formosa Boulevard Station, change to ORANGE line (towards Hamasen) to CianJin
 * [menu](https://maps.app.goo.gl/JHnGuyAv9jfDdugN8)
 
-#### [Lao Jiang Nan Tai (24 hours)](https://maps.app.goo.gl/rneavDmR9gfZVr8S7)
-* is 3min(230m) away from formosa boulevard station.
-
-#### [Lan Jing Breakfast Restaurant](https://maps.app.goo.gl/UA3t29uegiu8aRUa7)
-* is 10mins walk (750m) from kaohsiung station.
-
 #### [Fo Guang Shan](https://maps.app.goo.gl/buhWhVhB8x8NDNzb6)
 * take uber (35min drive)
 
@@ -52,6 +46,14 @@
    * [CiHou Fort](https://maps.app.goo.gl/EvJQVZpQQ3DrNEvt7)
 
 ## 30 Mar (Monday)
+
+### Breakfast
+#### [Lao Jiang Nan Tai (24 hours)](https://maps.app.goo.gl/rneavDmR9gfZVr8S7)
+* is 3min(230m) away from formosa boulevard station.
+
+#### [Lan Jing Breakfast Restaurant](https://maps.app.goo.gl/UA3t29uegiu8aRUa7)
+* is 10mins walk (750m) from kaohsiung station.
+
 #### [哈瑪星鐵道園區 Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)](https://maps.app.goo.gl/yhHTWrTX9qCPtcuD6)
 * from brio hotel, walk to central park station RED Line **Ganshan** 2min(120m)
 * or walk 14min (650m) towards formosa boulevard station.
