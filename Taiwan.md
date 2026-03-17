@@ -20,7 +20,7 @@
 ## 29 Mar (Sunday) 
 ### Breakfast
 
-#### xin long ju (4:30am to 11:30am, monday and tuesday closed)[https://maps.app.goo.gl/BabgA7UkeuDJ35Mn8]
+#### [xin long ju (4:30am to 11:30am, monday and tuesday closed)](https://maps.app.goo.gl/BabgA7UkeuDJ35Mn8)
 * is 2min(150m) from CianJin Station ORANGE line.
 * take RED Line to Formosa Boulevard Station, change to ORANGE line (towards Hamasen) to CianJin
 * [menu](https://maps.app.goo.gl/JHnGuyAv9jfDdugN8)
