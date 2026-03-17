@@ -54,8 +54,7 @@
 * walk 5mins to reach toroka park and suzuka circuit park.
 
 ### Lunch 
-#### qian jing rou zhao fan (7:15am to 5:30pm, closed on sunday)
-https://maps.app.goo.gl/qkoSuFPgBz5Thjdv5
+#### [前金肉燥飯 qian jing rou zhao fan (7:15am to 5:30pm, closed on sunday)](https://maps.app.goo.gl/qkoSuFPgBz5Thjdv5)
 * only can eat on monday or tuesday.
 * take the ORANGE line (towards DahLiao) from Hamasen.
 * get off at CianJin Station.
