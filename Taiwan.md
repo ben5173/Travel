@@ -56,9 +56,12 @@
 * is 10mins walk (**750m**) from kaohsiung station.
 * [menu](https://maps.app.goo.gl/S2ELncUTzqHr9vE1A)
 
-#### [YinGuanCha Station (6am-2:30pm)](https://maps.app.goo.gl/6PTf3k7kWyBYPr398)
-* is 8min (650m) walk from formosa boulevard station.
-* [menu](https://maps.app.goo.gl/UsteocpqaBkkwgc28)
+#### [Tian Ji Soy Milk (5am-11am,4pm-11pm)](https://maps.app.goo.gl/6A98JoPNdmqTFW7M6)
+* Take the ORANGE line at Formosa Boulevard Station towards Hamasen.
+* Get off at YangChengPu Station.
+* walk 4min (350m) will arrive.
+* [menu](https://maps.app.goo.gl/qxhLfhC7onqXty7f9)
+* [Duck Zhen](https://maps.app.goo.gl/SsQMX8MdDdz7rt3z7) is around the corner.
 
 #### [哈瑪星鐵道園區 Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)](https://maps.app.goo.gl/yhHTWrTX9qCPtcuD6)
 * from brio hotel, walk to central park station RED Line **Ganshan** 2min(120m)
@@ -88,13 +91,9 @@
 
 ## 31 Mar (Tuesday)
 ### Breakfast
-#### [Tian Ji Soy Milk (5am-11am,4pm-11pm)](https://maps.app.goo.gl/6A98JoPNdmqTFW7M6)
-* Take the ORANGE line at Formosa Boulevard Station towards Hamasen.
-* Get off at YangChengPu Station.
-* walk 4min (350m) will arrive.
-* [menu](https://maps.app.goo.gl/qxhLfhC7onqXty7f9)
-* [Duck Zhen](https://maps.app.goo.gl/SsQMX8MdDdz7rt3z7) is around the corner.
-
+#### [YinGuanCha Station (6am-2:30pm)](https://maps.app.goo.gl/6PTf3k7kWyBYPr398)
+* is 8min (650m) walk from formosa boulevard station.
+* [menu](https://maps.app.goo.gl/UsteocpqaBkkwgc28)
 
 #### [彩虹童畫親子樂園‧高雄科工館B1 夢幻彩虹光速滑梯、遊樂景點](https://maps.app.goo.gl/6miNcQ7zTMZdpmJ57)
 * need uber 11mins, no train
