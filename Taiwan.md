@@ -99,3 +99,13 @@
 #### [彩虹童畫親子樂園‧高雄科工館B1 夢幻彩虹光速滑梯、遊樂景點](https://maps.app.goo.gl/6miNcQ7zTMZdpmJ57)
 * need uber 11mins, no train (need green line, nice scenery from hamasen station.)
 
+#### [Dream Mall/ Uni-president Dept. Store Kaohsiung](https://maps.app.goo.gl/SNwA3Lz2wEupw6PU8)
+* The largest shopping mall in taiwan. featuring a roof view over the port.
+* take the RED line (towards Xiaogang), get off at Kaisyuan Station.
+* Walk 14min(900m) to arrive.
+* or Uber 12mins
+* or Green Line only walk about 2min.
+
+#### [Shidai Park](https://maps.app.goo.gl/oubmzBcgJXEpZha48)
+* children play ground.
+* very near Dream Mall. on the walking path towards mall using the RED line.
