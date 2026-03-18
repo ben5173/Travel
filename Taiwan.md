@@ -56,6 +56,10 @@
 * is 10mins walk (**750m**) from kaohsiung station.
 * [menu](https://maps.app.goo.gl/S2ELncUTzqHr9vE1A)
 
+#### [YinGuanCha Station (6am-2:30pm)](https://maps.app.goo.gl/6PTf3k7kWyBYPr398)
+* is 8min (650m) walk from formosa boulevard station.
+* [menu](https://maps.app.goo.gl/UsteocpqaBkkwgc28)
+
 #### [哈瑪星鐵道園區 Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)](https://maps.app.goo.gl/yhHTWrTX9qCPtcuD6)
 * from brio hotel, walk to central park station RED Line **Ganshan** 2min(120m)
 * or walk 14min (650m) towards formosa boulevard station.
