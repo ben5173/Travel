@@ -61,7 +61,7 @@
 * Get off at YangChengPu Station.
 * walk 4min (350m) will arrive.
 * [menu](https://maps.app.goo.gl/qxhLfhC7onqXty7f9)
-* [Duck Zhen](https://maps.app.goo.gl/SsQMX8MdDdz7rt3z7) is around the corner.
+* [Duck Zhen](https://maps.app.goo.gl/SsQMX8MdDdz7rt3z7) is on the opposite site of the train station. 
 * [虱目魚, shīmùyú - Milk Fish Specialty Store (8am-2pm, 4pm-7:30pm, monday closed)](https://maps.app.goo.gl/WfVxzBybbmE2FmCd7) is around the corner
 
 #### [哈瑪星鐵道園區 Hamasen (outdoor), Hamasen Railway Museum (10am), Pier2 Art (10am)](https://maps.app.goo.gl/yhHTWrTX9qCPtcuD6)
