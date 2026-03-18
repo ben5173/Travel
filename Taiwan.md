@@ -84,7 +84,13 @@
 
 ## 31 Mar (Tuesday)
 ### Breakfast
-#### Not decided
+#### [Tian Ji Soy Milk (5am-11am,4pm-11pm)](https://maps.app.goo.gl/6A98JoPNdmqTFW7M6)
+* Take the ORANGE line at Formosa Boulevard Station towards Hamasen.
+* Get off at YangChengPu Station.
+* walk 4min (350m) will arrive.
+* [menu](https://maps.app.goo.gl/qxhLfhC7onqXty7f9)
+* [Duck Zhen](https://maps.app.goo.gl/SsQMX8MdDdz7rt3z7) is around the corner.
+
 
 #### [彩虹童畫親子樂園‧高雄科工館B1 夢幻彩虹光速滑梯、遊樂景點](https://maps.app.goo.gl/6miNcQ7zTMZdpmJ57)
 * need uber 11mins, no train
