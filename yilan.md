@@ -1,17 +1,15 @@
 
-## 31 Mar (Saturday) 
+## 31 Mar (Tuesday)
+### Dinner
+#### [上品佑食堂(11am-7:30pm, thurs closed)]([https://maps.app.goo.gl/AjdYko6uN5keYXun6](https://maps.app.goo.gl/tYn28SJygAQps3MP8))
+* 
 
-#### [Brio hotel from ZuoYin Station](https://maps.app.goo.gl/AjdYko6uN5keYXun6)
-* 从左营高铁站到比欧致居 (Brio Hotel)
-* 在高铁左营站大厅内，请跟随“高雄捷运 (KMRT)”的指示牌走。地铁站名为左营站(R16)。
-* 搭乘红线向南的列车（往小港方向）。
-* 在中央公园站(R9)下车： 车程大约12–15分钟（共7站）。
-* 从中央公园站3号出口出站。比欧致居就在出口正前方，步行不到1分钟。
+#### [CHECK inn MAGI Kids](https://maps.app.goo.gl/Fwc72uSDeWvESEEV7)
+* 
 
-#### [liu he night market (5pm to 12am)](https://maps.app.goo.gl/FadV99q2HkKG32AE7)
-* from brio hotel, walk to central park station RED Line **Ganshan**  2min(120m)
-* get off at formosa boulevard station
-* walk 5min(350m) arrive.
+
+
+
 
 #### [Rui Feng night market (5pm to 12am, closed on monday and wed)](https://maps.app.goo.gl/NjAfDAo14kgjpMTP8)
 * take the red line, get off at Kaohsiung Arena Station
@@ -123,14 +121,26 @@ Dinner - bei gang tsai rice tubu
 Yilan
 
 上品佑食堂. Check in check inn magi kids
-柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 木瓜王
-蘭陽動植物王國 景德炸酱面 /泰顺小笼汤包/古一味蝦卷店
-传艺中心 來來牛排
-蜡笔城堡
-梅花湖
-罗东夜市
-葱宝宝自制手工葱油饼
-清水地热园 味珍香卜肉
+
+Jiaoxi
+柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 
+
+木瓜王 (very far)
+
+蘭陽動植物王國
+
+Yilan City
+景德炸酱面 /泰顺小笼汤包/古一味蝦卷店
+
+Luo dong
+[传艺中心 National Center for Traditional Arts](https://maps.app.goo.gl/V9xC3NHsSmxWTTg29) 
+[來來牛排 11am-10pm, monday closed](https://maps.app.goo.gl/ia8fRqwFW92WkRVw6)
+[蜡笔城堡](https://maps.app.goo.gl/hpzNqoiTuF2r7ieXA)
+[梅花湖](https://maps.app.goo.gl/zD1CWfVpxcVWkCAv5)
+[罗东夜市](https://maps.app.goo.gl/adgy3pZ98pX4fB7y9)
+[葱宝宝自制手工葱油饼](https://maps.app.goo.gl/wBbLhszoWqLKDi599)
+[清水地热园](https://maps.app.goo.gl/8WPtLdWXn6rxFm5y6)
+[味珍香卜肉](https://maps.app.goo.gl/v7wvmVRHDyrtWDtF9)
 
 计程车博物馆
 太平山森林游乐区
