@@ -109,3 +109,43 @@
 #### [Shidai Park](https://maps.app.goo.gl/oubmzBcgJXEpZha48)
 * children play ground.
 * very near Dream Mall. on the walking path towards mall using the RED line.
+
+高雄
+
+28/3 - Liu he or ruifeng night market
+29/3 - breakfast老江nantai,gushan ferry pier. Take ferry to chijin. Chijin old street. 前金肉燥饭,Fo guang shan . 六合夜市：推荐郑老牌的木瓜牛乳
+30/3 - Hamasan and pier 2 art center  带小朋友可以去蓬莱仓库搭「哈玛星小火车」🚂and suzuka circuit, lunch Chun shui tan
+Dinner - bei gang tsai rice tubu
+31/3 - Breakfast 兴隆居, 高雄科工馆FUN城市
+
+野森动物学校 / 星夢森林劇場
+
+Yilan
+
+上品佑食堂. Check in check inn magi kids
+柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 木瓜王
+蘭陽動植物王國 景德炸酱面 /泰顺小笼汤包/古一味蝦卷店
+传艺中心 來來牛排
+蜡笔城堡
+梅花湖
+罗东夜市
+葱宝宝自制手工葱油饼
+清水地热园 味珍香卜肉
+
+计程车博物馆
+太平山森林游乐区
+
+基隆
+
+正滨渔港彩虹屋
+和平岛地质公园
+忘优谷
+潮境公园
+国立海洋科技博物馆
+基隆庙口 吴记鼎边锉
+
+台北
+
+科教馆
+101 101站4号出口
+华山文创园区 忠孝新生站1号出口
