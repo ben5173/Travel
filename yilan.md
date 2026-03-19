@@ -2,14 +2,8 @@
 ## 31 Mar (Tuesday)
 ### Dinner
 #### [上品佑食堂(11am-7:30pm, thurs closed)]([https://maps.app.goo.gl/AjdYko6uN5keYXun6](https://maps.app.goo.gl/tYn28SJygAQps3MP8))
-* 
-
+ 
 #### [CHECK inn MAGI Kids](https://maps.app.goo.gl/Fwc72uSDeWvESEEV7)
-* 
-
-
-
-
 
 #### [Rui Feng night market (5pm to 12am, closed on monday and wed)](https://maps.app.goo.gl/NjAfDAo14kgjpMTP8)
 * take the red line, get off at Kaohsiung Arena Station
