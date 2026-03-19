@@ -1,5 +1,7 @@
 
 ## 28 Mar (Saturday) 
+#### Airport to Kaohsiung
+* Take MRT at B2 to Taoyuan Highspeed Rail Station (6 Station) 1 hour 40 mins 
 
 #### [Brio hotel from ZuoYin Station](https://maps.app.goo.gl/AjdYko6uN5keYXun6)
 * 从左营高铁站到比欧致居 (Brio Hotel)
