@@ -1,7 +1,7 @@
 
 ## 31 Mar (Tuesday) Raining, occasional rain 
 ### Collect rental car
-* 11am Taipei station
+* 11am Taipei station, 1.5 hour drive
 
 ### Dinner
 #### [上品佑食堂(11am-7:30pm, thurs closed)]([https://maps.app.goo.gl/AjdYko6uN5keYXun6](https://maps.app.goo.gl/tYn28SJygAQps3MP8))
