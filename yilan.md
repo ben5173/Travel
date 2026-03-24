@@ -27,6 +27,9 @@
 #### [清水地热园](https://maps.app.goo.gl/8WPtLdWXn6rxFm5y6)]
 *outdoor
 
+#### food
+* [味珍香卜肉](https://maps.app.goo.gl/v7wvmVRHDyrtWDtF9) near qingshui
+
 ### LuoDong
 #### [蜡笔城堡 (8:30am-5:30pm)](https://maps.app.goo.gl/hpzNqoiTuF2r7ieXA)
 * each session is a 4 part activity, total 1.5hours
@@ -43,26 +46,18 @@
 #### [传艺中心 National Center for Traditional Arts (9am-6pm) ](https://maps.app.goo.gl/V9xC3NHsSmxWTTg29) 
 * outdoor
 
+#### food
+* [來來牛排 11am-10pm, monday closed](https://maps.app.goo.gl/ia8fRqwFW92WkRVw6) near 传艺中心.
+
 #### [梅花湖](https://maps.app.goo.gl/zD1CWfVpxcVWkCAv5)
 * outdoor
-  
+
 #### [Bambi Land](https://maps.app.goo.gl/j8Nn9naxWDyti2FaA)
 * outdoor
 
 ### JiaoXi
 #### [柯氏蔥油餅](https://maps.app.goo.gl/utiqYez6EsgpEhXz5)
 * 柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 
-
-### food
-* [來來牛排 11am-10pm, monday closed](https://maps.app.goo.gl/ia8fRqwFW92WkRVw6) near 传艺中心.
-* [味珍香卜肉](https://maps.app.goo.gl/v7wvmVRHDyrtWDtF9)
-
-### Attractions
-
-
-
-* [Zhang Mei Ama’s Farm](https://maps.app.goo.gl/dn6B719k38AZiRbh6)
-* [清水地热园](https://maps.app.goo.gl/8WPtLdWXn6rxFm5y6)
 
 ## 2 Apr (Thurs) a little rain in the morning
 
@@ -79,7 +74,6 @@
 * [吴记鼎边锉](https://maps.app.goo.gl/Ch55BhZuabagvEYDA)
 
 ## 3 Apr (Friday) 
-
 #### Taipei
 
 
