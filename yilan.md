@@ -8,21 +8,61 @@
  
 #### [CHECK inn MAGI Kids](https://maps.app.goo.gl/Fwc72uSDeWvESEEV7)
 
-#### [罗东夜市](https://maps.app.goo.gl/adgy3pZ98pX4fB7y9)
+#### [罗东夜市 (3pm-12am)](https://maps.app.goo.gl/adgy3pZ98pX4fB7y9)
 * walk 7min (550m) to reach 
 
 ## 1 Apr (Wed) little afternoon rain
 
 ## Luo dong
-### Attractions
-* [传艺中心 National Center for Traditional Arts](https://maps.app.goo.gl/V9xC3NHsSmxWTTg29) 
-* [來來牛排 11am-10pm, monday closed](https://maps.app.goo.gl/ia8fRqwFW92WkRVw6)
-* [蜡笔城堡](https://maps.app.goo.gl/hpzNqoiTuF2r7ieXA)
-* [梅花湖](https://maps.app.goo.gl/zD1CWfVpxcVWkCAv5)
-* [葱宝宝自制手工葱油饼](https://maps.app.goo.gl/wBbLhszoWqLKDi599)
-* [清水地热园](https://maps.app.goo.gl/8WPtLdWXn6rxFm5y6)
+### SanXing
+#### [葱宝宝自制手工葱油饼 (9am-4:30pm)](https://maps.app.goo.gl/wBbLhszoWqLKDi599)
+* partial outdoor
+* no walk-in. need to buy ticket at klook.
+* every hour got session. each session around 30mins.
+
+#### [Zhang Mei Ama’s Farm](https://maps.app.goo.gl/dn6B719k38AZiRbh6)
+* outdoor
+* near 葱宝宝
+
+#### [清水地热园](https://maps.app.goo.gl/8WPtLdWXn6rxFm5y6)]
+*outdoor
+
+### LuoDong
+#### [蜡笔城堡 (8:30am-5:30pm)](https://maps.app.goo.gl/hpzNqoiTuF2r7ieXA)
+* each session is a 4 part activity, total 1.5hours
+
+#### [宜蘭餅發明館 (8:30am-6pm)](https://maps.app.goo.gl/34ExPs3FcEeD3fHm9)
+* got DIY activity at upper floor. DIY baking class session very limited.
+* ox tongue cookie is famous
+* very near crayon musuem
+
+#### [Kili Bay Pearl Milk Tea Cultural Center (10am-5pm)](https://maps.app.goo.gl/5yqHt8WAegXRpsTU6)
+* DIY milk tea
+* near to crayon and yilan cookie
+
+#### [传艺中心 National Center for Traditional Arts (9am-6pm) ](https://maps.app.goo.gl/V9xC3NHsSmxWTTg29) 
+* outdoor
+
+#### [梅花湖](https://maps.app.goo.gl/zD1CWfVpxcVWkCAv5)
+* outdoor
+  
+#### [Bambi Land](https://maps.app.goo.gl/j8Nn9naxWDyti2FaA)
+* outdoor
+
+### JiaoXi
+#### [柯氏蔥油餅](https://maps.app.goo.gl/utiqYez6EsgpEhXz5)
+* 柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 
+
+### food
+* [來來牛排 11am-10pm, monday closed](https://maps.app.goo.gl/ia8fRqwFW92WkRVw6) near 传艺中心.
 * [味珍香卜肉](https://maps.app.goo.gl/v7wvmVRHDyrtWDtF9)
 
+### Attractions
+
+
+
+* [Zhang Mei Ama’s Farm](https://maps.app.goo.gl/dn6B719k38AZiRbh6)
+* [清水地热园](https://maps.app.goo.gl/8WPtLdWXn6rxFm5y6)
 
 ## 2 Apr (Thurs) a little rain in the morning
 
@@ -40,7 +80,7 @@
 
 ## 3 Apr (Friday) 
 
-#### No plan yet
+#### Taipei
 
 
 
