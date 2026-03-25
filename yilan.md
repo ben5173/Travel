@@ -5,6 +5,7 @@
 * 11am Taipei station, 1.5 hour drive
 * 886-2-2592-3555
 * booking number R2510W0110273
+* **Check on how to pay toll and parking, is it uTagGo?** 
 
 ### Dinner
 #### [上品佑食堂(11am-7:30pm, thurs closed)]([https://maps.app.goo.gl/AjdYko6uN5keYXun6](https://maps.app.goo.gl/tYn28SJygAQps3MP8))
@@ -64,19 +65,35 @@
 
 ## 2 Apr (Thurs) a little rain in the morning
 
-## 基隆
-#### [潮境公园 & 潮境智能海洋館 iOcean 9am-5pm](https://maps.app.goo.gl/dcRnVaZ2zS3FZkgV9)
+### 基隆
+#### 🅿️[潮境公園收費停車場](https://maps.app.goo.gl/gQAseTuZhSRfgPXc6)
+* parking here to go iOcean and 潮境公園 Chao Jing Park
+* 20 per hour (Weekday)
+* [潮境公园 & 潮境智能海洋館 iOcean 9am-5pm](https://maps.app.goo.gl/dcRnVaZ2zS3FZkgV9)
+* [潮境公園 Chao Jing Park](https://maps.app.goo.gl/1SKYfWT9rLMV1r8T6)
+* [国立海洋科技博物馆 9am-5pm](https://maps.app.goo.gl/pjrSNRMzpG61BWNT9)
+  * nothing special, should skip.
+  * restaurant around this area is expensive, **suggest to eat at Keelung city**.
 
-#### [国立海洋科技博物馆 9am-5pm](https://maps.app.goo.gl/pjrSNRMzpG61BWNT9)
-* nothing special, should skip.
-* restaurant around this area is expensive.
+#### 🅿️[六五高地停車場 八斗子望幽谷](https://maps.app.goo.gl/H8MP8kMEfKGQbjVPA)
+* parking here to go 望幽谷
+* 50 per hour (Weekday)
+* [望幽谷](https://maps.app.goo.gl/V3hbzrU8Fpxj7QYt7)
+  * walk 2 minute (130m) to reach the viewing point from car park
 
-### Attractions
+#### 🅿️[日月亭基隆和一停車場 uTagGo]
+* 30 per hour (Weekday)
+* walk across the bridge to reach viewing deck for Zhengbin colour house.
+* [和平島蔥抓餅](https://maps.app.goo.gl/StVAuX6LN6X87amw8)
+  * near parking
 * [正滨渔港彩虹屋](https://maps.app.goo.gl/65miASf2L8a71eQj9)
+
+#### 🅿️[Heping island parking](https://maps.app.goo.gl/2qzoa4XtUTSi3tk88)
+* 50 per entry  
 * [和平岛地质公园](https://maps.app.goo.gl/LWWLzA8ujBzF6yS1A)
-* [忘优谷](https://maps.app.goo.gl/j6MCa2sYXKrAtwVR9)
-* [潮境公园 & 潮境智能海洋館 iOcean](https://maps.app.goo.gl/dcRnVaZ2zS3FZkgV9)
-* 
+  * 1min (73m) walk from carpark.
+
+### Attractions 
 * [基隆庙口 night market](https://maps.app.goo.gl/22zXvWA3vrsBAWFb6)
 
 ### Food
