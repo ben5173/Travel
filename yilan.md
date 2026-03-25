@@ -1,7 +1,10 @@
 
 ## 31 Mar (Tuesday) Raining, occasional rain 
-### Collect rental car
+### [Collect rental car 8:30am-8:30pm](https://maps.app.goo.gl/jiPmNiTbHgV1PvC76)
+* collect at taipei railway station near west gate (by appointment)
 * 11am Taipei station, 1.5 hour drive
+* 886-2-2592-3555
+* booking number R2510W0110273
 
 ### Dinner
 #### [上品佑食堂(11am-7:30pm, thurs closed)]([https://maps.app.goo.gl/AjdYko6uN5keYXun6](https://maps.app.goo.gl/tYn28SJygAQps3MP8))
@@ -80,7 +83,9 @@
 * [吴记鼎边锉](https://maps.app.goo.gl/Ch55BhZuabagvEYDA)
 
 ## 3 Apr (Friday) 
-#### Taipei
+### Return car Taipei before 3rd April 10am
+#### [Chailease 8:30am-8:30pm](https://maps.app.goo.gl/tvq5WPnkBLYQUKL69)
+* 886-2-2959-2168
 
 
 
