@@ -7,6 +7,10 @@
 * booking number R2510W0110273
 * **Check on how to pay toll and parking, is it uTagGo?** 
 
+### JiaoXi (late lunch or snacks)
+#### [柯氏蔥油餅 9am-6pm](https://maps.app.goo.gl/utiqYez6EsgpEhXz5)
+* 柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 
+
 ### Dinner
 #### [上品佑食堂(11am-7:30pm, thurs closed)]([https://maps.app.goo.gl/AjdYko6uN5keYXun6](https://maps.app.goo.gl/tYn28SJygAQps3MP8))
  
@@ -59,9 +63,7 @@
 #### [Bambi Land](https://maps.app.goo.gl/j8Nn9naxWDyti2FaA)
 * outdoor
 
-### JiaoXi
-#### [柯氏蔥油餅](https://maps.app.goo.gl/utiqYez6EsgpEhXz5)
-* 柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 
+
 
 ## 2 Apr (Thurs) a little rain in the morning
 
