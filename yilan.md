@@ -13,7 +13,7 @@
 * 柯氏蔥油餅, 礁溪香肠伯, 吴记花生捲冰淇淋。湯圍溝公園商圈 玉仁八寶冬粉/瓮窑鸡礁溪总店 
 
 ### Dinner
-#### [上品佑食堂(11am-7:30pm, thurs closed)]([https://maps.app.goo.gl/AjdYko6uN5keYXun6](https://maps.app.goo.gl/tYn28SJygAQps3MP8))
+#### [上品佑食堂(11am-7:30pm, thurs closed)](https://maps.app.goo.gl/3Ppdv56HZramF9nc9)
  
 #### [CHECK inn MAGI Kids](https://maps.app.goo.gl/Fwc72uSDeWvESEEV7)
 
