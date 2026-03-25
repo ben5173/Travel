@@ -62,12 +62,18 @@
 ## 2 Apr (Thurs) a little rain in the morning
 
 ## 基隆
+#### [潮境公园 & 潮境智能海洋館 iOcean 9am-5pm](https://maps.app.goo.gl/dcRnVaZ2zS3FZkgV9)
+
+#### [国立海洋科技博物馆 9am-5pm](https://maps.app.goo.gl/pjrSNRMzpG61BWNT9)
+* nothing special, should skip.
+* restaurant around this area is expensive.
+
 ### Attractions
 * [正滨渔港彩虹屋](https://maps.app.goo.gl/65miASf2L8a71eQj9)
 * [和平岛地质公园](https://maps.app.goo.gl/LWWLzA8ujBzF6yS1A)
 * [忘优谷](https://maps.app.goo.gl/j6MCa2sYXKrAtwVR9)
 * [潮境公园 & 潮境智能海洋館 iOcean](https://maps.app.goo.gl/dcRnVaZ2zS3FZkgV9)
-* [国立海洋科技博物馆](https://maps.app.goo.gl/pjrSNRMzpG61BWNT9)
+* 
 * [基隆庙口 night market](https://maps.app.goo.gl/22zXvWA3vrsBAWFb6)
 
 ### Food
