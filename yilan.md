@@ -23,6 +23,8 @@
 
 ## 1 Apr (Wed) little afternoon rain
 
+* **May be try to squeeze in crayon, cookies and bubble tea into tuesday so wed can continue with SanXing route.** *
+
 ## Luo dong
 ### SanXing
 #### [葱宝宝自制手工葱油饼 (9am-4:30pm)](https://maps.app.goo.gl/wBbLhszoWqLKDi599)
@@ -108,7 +110,10 @@
 #### [Chailease 8:30am-8:30pm](https://maps.app.goo.gl/tvq5WPnkBLYQUKL69)
 * 886-2-2959-2168
 
-
+### 台北
+科教馆
+101 101站4号出口
+华山文创园区 忠孝新生站1号出口
 
 
 
@@ -144,8 +149,4 @@ Yilan City
 
 
 
-## 台北
-### Attractions
-科教馆
-101 101站4号出口
-华山文创园区 忠孝新生站1号出口
+
